@@ -21,7 +21,11 @@ The coding languages I am most proficient in is SQL, Python, Java, and  HTML/CSS
 Fun Fact:
 
 I attend the Univerity at Albany 🟪🟨
+
+
 I am a Knicks Fan 🏀
+
+
 I enjoy going to the gym and playing sports on my free time 
 
 
