@@ -23,10 +23,7 @@ Fun Fact:
 I attend the Univerity at Albany 🟪🟨
 
 
-I am a Knicks Fan 🏀
-
-
-I enjoy going to the gym and playing sports on my free time 
+I am a Knicks Fan 
 
 
 
