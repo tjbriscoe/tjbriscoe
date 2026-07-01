@@ -18,12 +18,6 @@ My favorite tools to work with is Figma, Adobe CC, Excel, Tableau, Google Cloud,
 The coding languages I am most proficient in is SQL, Python, Java, and  HTML/CSS
 
 
-Fun Fact:
-
-I attend the Univerity at Albany 🟪🟨
-
-
-I am a Knicks Fan 
 
 
 
